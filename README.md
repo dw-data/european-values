@@ -2,7 +2,7 @@
 
 Human dignity, freedom, equality, democracy. "European values" often sound noble, but vague. Using data from the European Values Study, we analyzed what Europeans agree on – and what divides them.
 
-**Story**: You can read the full story on DW.com (English | German). You can also view it on Facebook and Instagram.
+**Story**: You can read the full story here: [English](https://www.dw.com/a-48531432) | [German](https://www.dw.com/a-48531726). You can also view it on Facebook and Instagram.
 
 **Research, data analysis and visualization, writing:** [Kira Schacht](https://twitter.com/daten_drang)
 
